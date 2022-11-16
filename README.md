@@ -1,1 +1,1 @@
-Kid named Finger
+Just a kid with a dream
